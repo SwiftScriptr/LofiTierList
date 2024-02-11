@@ -1,0 +1,7 @@
+Hello, and welcome to what I hope will be a community blog space of fellow app devs and open source crusaders.
+In this repo, #TheLofiTierList, I hope to share and bring about opinions on my favourite tracks that I've scouted over these 4 quick years.
+Some are revisits of what I've passively heard and love, along with deep dives of certain artists worth the exposure.
+
+Nevertheless, I sure hope we are like-mindes people willing to invest in independent composers and artists, after being force fead the filth of the mainstream music industry for far too long.
+I value the nostalgia and expressed talent that gets it's pennysworth from these folks and female vocalists (yet to find or identify all exclusive female MC's).
+Having said that, I believe the Hanz Zimmers (You must of heard his music in films with impact in the past 10 years) and Sumi's (an anime Soundtrack Legend IMO) are there for the common folk who care to search for them. Across the mainstream platforms YouTube SoundCloud BandCamp ect there are these hidden gems worth seeking out for your own niche and style of music. You will find that less words and true synphonies to synths jazz and hiphop is less burdensome than the 98% of marketed trash.
